@@ -1,0 +1,1 @@
+This bot contains sussy stuff! Dont add if you too blushy. (lol since when i made "blushy" up?)
